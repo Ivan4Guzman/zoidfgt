@@ -1,2 +1,1 @@
-# zoidfgt
 Tredenex Vision AI Überblick 2025 - Was dir niemand sagt!
